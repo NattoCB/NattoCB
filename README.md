@@ -1,4 +1,4 @@
-#### ⚡ Support Me (Alipay) https://afdian.net/@JasperBear  
+#### ⚡ Support Me (Alipay) https://afdian.com/@JasperBear  
 #### 🍺 Support Me (PayPal) https://www.buymeacoffee.com/JasperBear
 
 
